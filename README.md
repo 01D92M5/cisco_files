@@ -1,4 +1,4 @@
-# This is an exmaple
+# This is an example
 
 
-Wzup nigga
+Hey boy !
